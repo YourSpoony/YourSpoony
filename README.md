@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YourSpoony
+- 👋 Hi, I’m Rishabh Rao
 - 👀 I’m interested in Learning New Things
 - 🌱 I’m currently Pursuing my CSE Ai & ML Degree from Chandigarh University 
 - You can Add me on insta, my username is http_rishabh
